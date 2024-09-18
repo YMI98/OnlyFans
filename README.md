@@ -1,1 +1,1 @@
-# For thirsty BI Students
+# For Thirsty BI Students
